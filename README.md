@@ -2,9 +2,9 @@
 Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
 
 
-您可以在这里下载: [download Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
+您可以在这里下载: [Download on Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
 
-You can download it here: [download Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
+You can download it here: [Download on Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
 
 （↓↓Scroll down to find English↓↓）
 
