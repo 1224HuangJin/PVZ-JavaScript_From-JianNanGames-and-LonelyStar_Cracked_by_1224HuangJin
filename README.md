@@ -31,6 +31,8 @@ Jiangnan official version: [GitHub](https://github.com/jiangnangame/New-Plants-v
 
 (此版本是由1224HuangJin 破解的)
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 
 ![Logo.png](https://p3-juejin.byteimg.com/tos-cn-i-k3u1fbpfcp/c57c4bb8d56c4282894981a56ced6bca~tplv-k3u1fbpfcp-jj-mark:0:0:0:0:q75.image#?w=900&h=600&s=763723&e=png&b=e5d7bf)
 
