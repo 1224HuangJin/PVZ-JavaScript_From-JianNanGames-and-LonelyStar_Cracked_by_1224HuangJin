@@ -7,6 +7,8 @@ Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
 
 江南官方版: [GitHub](https://github.com/jiangnangame/New-Plants-vs-Zombies-JavaScript)
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 
 Play online (play on the web): [Play online](https://www.newgrounds.com/portal/view/project/5860465)
 
