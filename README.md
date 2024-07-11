@@ -10,7 +10,7 @@ Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-Play online (play on the web): [[Play online](https://gamejolt.com/games/plants-vs-zombies-js-cracked-version/910220)
+Play online (play on the web): [Play online](https://gamejolt.com/games/plants-vs-zombies-js-cracked-version/910220)
 
 You can download it here: [Download on Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
 
