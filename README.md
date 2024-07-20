@@ -1,7 +1,7 @@
 # New Plants vs. Zombies JavaScript
 Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
 
-在线玩（在网页玩）: [在线玩](https://gamejolt.com/games/plants-vs-zombies-js-cracked-version/910220)
+在线玩（在网页玩）: [在线玩](https://1224huangjin.github.io/PVZ-JavaScript_For-JianNanGames_Cracked_by_1224HuangJin/)
 
 您可以在这里下载: [在Google Drive下载](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
 
@@ -10,7 +10,7 @@ Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-Play online (play on the web): [Play online](https://gamejolt.com/games/plants-vs-zombies-js-cracked-version/910220)
+Play online (play on the web): [Play online](https://1224huangjin.github.io/PVZ-JavaScript_For-JianNanGames_Cracked_by_1224HuangJin/)
 
 You can download it here: [Download on Google Drive](https://drive.google.com/file/d/1URQZYa1mgmlrUmL_YEEg5-_4ZfqXgdXC/view?usp=sharing)
 
