@@ -1,5 +1,5 @@
-# New Plants vs. Zombies JavaScript
-Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin
+# New Plants vs. Zombies JavaScript Cracked Version | 新植物大战僵尸 JavaScript 破解版
+Plants vs. Zombies JavaScript for JiangNanGame But is Cracked for 1224HuangJin | 植物大战僵尸 JavaScript for JiangNanGame 但被 1224HuangJin 破解
 
 在线玩（在网页玩）: [在线玩](https://1224huangjin.github.io/PVZ-JavaScript_For-JianNanGames_Cracked_by_1224HuangJin/)
 
